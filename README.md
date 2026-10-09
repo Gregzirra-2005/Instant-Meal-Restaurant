@@ -1,5 +1,5 @@
 =========================================
-  ABUJA SUYA & POT / INSTANT MEAL
+  ABUJA INSTANT MEAL
   Nigerian Restaurant Website
 =========================================
 
